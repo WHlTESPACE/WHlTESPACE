@@ -1,1 +1,3 @@
-![eb0e280253ff7b9739729afe37a618c9](https://github.com/user-attachments/assets/cf717dfe-60c6-43ac-a46f-28b996859de6)
+#### <p align="center"> Follow my main pls! More info over there at @kolcheks!
+
+## <p align="center">![eb0e280253ff7b9739729afe37a618c9](https://github.com/user-attachments/assets/cf717dfe-60c6-43ac-a46f-28b996859de6)
